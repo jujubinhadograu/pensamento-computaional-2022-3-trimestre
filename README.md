@@ -1,0 +1,1 @@
+# pensamento-computaional-2022-3-trimestre
